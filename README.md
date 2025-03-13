@@ -1,2 +1,2 @@
-# Bajaj-Auto-Limited-Internship-
-INTERNSHIP PROJECT
+# Bajaj-Auto-Limited-Project
+
